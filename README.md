@@ -57,6 +57,7 @@ Waste water treatment.
 
 Choosing [Plug Valve Suppliers in Algeria](https://www.africanvalve.com/product-category/plug-valve/) guarantees companies obtain valves that satisfy strict criteria for quality, durability, and performance.
 Along with plug valves, African Valve provides technical assistance to assist businesses in selecting the appropriate valve style for their pipe systems. Reliable Plug Valve Suppliers in Algeria become increasingly important in assisting safe and effective fluid control activities as the country advances its industrial infrastructure.
+
 Description: 
 Body material: Cast Carbon steel plug valve (WCC,WCB, WC6), Stainless Steel plug valve [SS316, SS304, SS316L, SS904L, CF8, CF8M, F31L, F91], DUPLEX STEEL  and Super duplex Steel plug valve (F51,F53,F55) , Cast iron, Ductile Iron. 
 Class: 150-2500; PN 10 – PN 450 
